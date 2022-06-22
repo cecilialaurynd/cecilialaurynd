@@ -1,0 +1,2 @@
+- 👋ola meu nome é Cecilia Laurynd, tenho 16 anos e estudo no colegio estadual professor paulo stencel 
+- 👀 estou enteressada em aprender designer de compultação para o meu trabalho
